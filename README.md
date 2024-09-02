@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **rociomiranda0397@gmail.com**
 
-- ⚡ No me rindo, sigo progresando **No me rindo, sigo progresando**
+- ⚡ No me rindo, sigo progresando
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
